@@ -4,7 +4,7 @@
 
 **Obs:** Selecione o ano para que sua visualização seja completa.
 
-![image](https://github.com/user-attachments/assets/3e82663c-a134-4d5a-9beb-2d8c59f33468)
+![image](https://github.com/user-attachments/assets/34d1b790-67b8-4848-8695-94660542c9c5)
 
 ______________________________________________________________________________________________________________________________________________________________________
 
